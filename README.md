@@ -2,7 +2,6 @@
 - 👀 I’m interested in ... DevOps, Music, Sports, Drawing, Foodie & Travelling
 - 🌱 I’m currently learning ... Terraform & Kubernetes DevOps Tools
 - 💞️ I’m looking to collaborate on ...New ideas
-- 📫 How to reach me ... #8125608431 or Venkateshdanda11@gmail.com
 - 😄 Pronouns: ... Danda, Whitehorse, Handsome, Venki
 - ⚡ Fun fact: ... I am always a mysterious Sigma Male!!
 
